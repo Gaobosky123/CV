@@ -1,1 +1,1 @@
-Personal CV, address: https://securenavigation.github.io/CV/
+Personal CV, address: https://Gaobosky123.github.io/CV/
